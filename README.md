@@ -1,6 +1,12 @@
 # Mehakpreet Kaur 
-My name is mehakpreet Kaur. 
-## day - 1  10-7-24 
-| sr. no. | guest name | 
+My name is mehakpreet Kaur. Recently, I have completed my +2 class in non medical . Now, I am pursuing BTech CSE course in Guru Nanak Dev Engineering College, Ludhiana. I have also completed my excel course. I completed my +2 class from Govt Girls Senior Secondary School, Sahnewal. 
+# +2 marks subject wise 
+| subject | Marks | 
 | -------- | ------- | 
-| 1. | Dr. sehajpal singh | 
+| Punjabi | 93/100 | 
+| Physics | 87/100 | 
+| Chemistry | 89/100 | 
+| Mathematics | 99/100 | 
+| Environment studies | 49/50 | 
+| Percentage | 92.6% |
+
