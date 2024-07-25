@@ -10,3 +10,5 @@ My name is mehakpreet Kaur. Recently, I have completed my +2 class in non medica
 | Environment studies | 49/50 | 
 | Percentage | 92.6% |
 
+[view my student report](Studentreport۔md)
+
