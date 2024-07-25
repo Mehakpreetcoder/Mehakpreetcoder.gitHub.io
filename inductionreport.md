@@ -27,3 +27,16 @@ Thanks...!!
 Greetings everyone!! It was the third day of the induction program. This day our first classes were taken . Our first lecture was about peer interaction of canva. This lecture was took by our seniors . They told us about the different features of canva. They taught us that how to make posters and also about the functions of the elements and others on the canva . They gave us the task to make poster by ourselves and then they taught us that how to create insta post . They gave us task to do it . And also gave us the homework. Our second lecture is of maths , sir took our lecture and he studied us the derivative. He gave the questions to solve and revised us the formulas of derivatives. This was how , our lectures took by our seniors and professor. 
 Thanks....!!
 
+## DAY-4 
+
+Greetings everyone!! It was the fourth day of the induction program.
+
+| sr. no. | guest name | 
+| -------- | -------- |
+| 1. | Dr. Randhir Singh | 
+| 2. | Dr. Pyare Lal | 
+| 3. | Dr. Sony Goyal | 
+| 4. | Mr. Pancham | 
+
+Firstly, Dr. Randhir Singh sir told us some instructions about GitHub and some other things. Then Dr. Pyare Lal sir , who is the motivational and inspirational speaker, delivered his own experiences of life and about the problems that he had faced in his life. He also told us that how to handle the problems with patience and smartly. He motivated us to move forward in life and to do right things and follow the right path . Then , Mr. Sony Goyal sir took our session of 1 2 ka 4 . He entertain us and taught us many important things in very simple way . He told the formula of life i.e. Learn , Inquire  , Future and Explore and he told us few stories of his own life and motivated us to be positive in life. I really attended this lecture with very interest . He really motivated us with good manner and with good stories. Then after break , Mr. Pancham sir told us about the difference between real and fake smile and to read body language. That what is the manner , what is behaviour, good manner , positive and negative thoughts and many more . His lecture was very helpful to us and we learnt many new things from this lecture.
+Thanks...!!
