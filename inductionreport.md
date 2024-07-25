@@ -21,3 +21,9 @@ Greetings everyone !! It was the second day of the induction program.
 
 Firstly, Dr. Arving Dhingra director of STEP . He does research in curriculum theory, educational leadership and educational management. He has more than 25 years of experience and honoured by IISA award , national eminent educator award . Full form of STEP is Science & Technology Entrepreneurs Park. It develop the education skills , entrepreneurship, networking , experience etc. . He told us the benefits of joining STEP . Then, Dr. Parminder Singh, offered guidence to the candidates and he shared his own experiences of the life and to take right decision in life . To live in the good atmosphere and motivate us . Then, CoE Dr. H.S. Rai told us about the examination that how to attend exam , exam pattern and main points of the exams that may helpfull for us in our examination. He also told us his own experiences in exams and many other things. 
 Thanks...!!
+
+## DAY-3 
+
+Greetings everyone!! It was the third day of the induction program. This day our first classes were taken . Our first lecture was about peer interaction of canva. This lecture was took by our seniors . They told us about the different features of canva. They taught us that how to make posters and also about the functions of the elements and others on the canva . They gave us the task to make poster by ourselves and then they taught us that how to create insta post . They gave us task to do it . And also gave us the homework. Our second lecture is of maths , sir took our lecture and he studied us the derivative. He gave the questions to solve and revised us the formulas of derivatives. This was how , our lectures took by our seniors and professor. 
+Thanks....!!
+
