@@ -85,3 +85,8 @@ Thanks....!!
 
 Greetings everyone!! It was the tenth day of the induction program. There were two lectures and both were of universal human values ( UHV ) . First lecture was taken by RK sir and second lecture was taken by Manjot mam . In both lectures, we learnt those topics that we had already done but in both lectures we learnt new things and learn the topics more deeply and more simply. Both lectures was about human values, value education, self exploration, co-existence of body&soul , imagination, happiness , prosperity, harmony in family, aspects in relationship, feelings in relationship and some other topics . Both professor taught us very smoothly and with simple way by which students learn easily.
 Thanks....!!
+
+## DAY-11
+
+Greetings everyone!! It was the twelfth day of the induction program. There were two lectures and maths test on this day. First lecture was of maths, mam taught us about integration & some formulas of integration. She gave us different sums of different methods to solve. We solved the sums and mam checked our notebooks. Then our second lecture was of basic of chemistry, in which mam firstly told us about the curriculum of chemistry. Then , she taught some important topics that are interlinked by the engineering. She revised us some previous important topics. After break, our maths test took by the mam and we did that test with honesty .
+Thanks...!!
