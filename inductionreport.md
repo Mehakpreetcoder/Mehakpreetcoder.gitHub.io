@@ -56,3 +56,15 @@ Thanks....!!
 
 Greetings everyone!! It was the seventh day of the induction program. There were two lectures one was of UHV and second was peer Interaction about college . The first lecture was of UHV and  taken by Nisha mam. In this lecture, mam taught us about the harmony in the family. In this topic,  we discussed about the main aspects of the Relationship and nine feelings in Relationship and also learn about imagination, happines, prosperity and some other things. Our second lecture was peer interaction about college. This lecture was taken by our seniors. In this they told us about activities & clubs in the college and also about different blocks, canteens, sport ground , sport complex etc. In last,  they told us about the exam pattern and told that how to attend exam and also told to focus on our physical activities also. Then after break, our two lectures was in auditorium about NCC & NSS . Members of NSS & NCC told us about the benefits of joining NSS & NCC. They also told about various activities done by NSS & NCC candidates . They motivated us to join NCC & NSS with our academic studies and told the importance of NCC & NSS.
 Thanks....!!
+
+## DAY-8
+
+Greetings everyone!! It was the eighth day of the induction program. Our lectures were in auditorium. 
+
+| sr. no. | Guest name |
+| -------- | ------- | 
+| 1. | Dr. Kanwardeep Kalra | 
+| 2.| Jaswinder Singh |
+
+Firstly,  Dr. Kanwardeep Kalra, mam told us about the importance of communication skill and about the sense of manners. That how to attend the interviews in right manners. She understood us these things by small drama which we enjoyed a lot and also we learn new lessons from these drama. She is really a good motivator and speaker and motivate us to do good things. Our next guest was Jaswinder Singh, who is the in-charge of IAPT (Indian Association of physics teacher). He taught us the different tricks in maths. As, he is the physics teacher he showed us different experiments of physics and also told concepts behind these experiments. We learnt a lot of new things by these experiments. We enjoyed these lecture. Then after break there was a departmental visit in which we went to the MBA block and there we went to our class where the our professor told about the different important things for starting new session. They told us the exam pattern and also about different labs in MBA block. Then our mentor took us to show the labs and we also saw computer lab and server in the IT department. Then , we come back to our classes which was allotted to us . Then , professor told about that how mentor help us in every problem and some important things about mentor.
+Thanks..!!
