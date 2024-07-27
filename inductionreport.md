@@ -68,3 +68,15 @@ Greetings everyone!! It was the eighth day of the induction program. Our lecture
 
 Firstly,  Dr. Kanwardeep Kalra, mam told us about the importance of communication skill and about the sense of manners. That how to attend the interviews in right manners. She understood us these things by small drama which we enjoyed a lot and also we learn new lessons from these drama. She is really a good motivator and speaker and motivate us to do good things. Our next guest was Jaswinder Singh, who is the in-charge of IAPT (Indian Association of physics teacher). He taught us the different tricks in maths. As, he is the physics teacher he showed us different experiments of physics and also told concepts behind these experiments. We learnt a lot of new things by these experiments. We enjoyed these lecture. Then after break there was a departmental visit in which we went to the MBA block and there we went to our class where the our professor told about the different important things for starting new session. They told us the exam pattern and also about different labs in MBA block. Then our mentor took us to show the labs and we also saw computer lab and server in the IT department. Then , we come back to our classes which was allotted to us . Then , professor told about that how mentor help us in every problem and some important things about mentor.
 Thanks..!!
+
+## DAY-9
+Greetings everyone!! It was the ninth day of the induction program.
+
+| Sr. no. | guest nane | 
+| -------- | -------- | 
+| 1. | Dr. SB Singh | 
+| 2. | Dr. Pushpinder Singh |
+| 3. | Dr. sangeeta |
+
+The first lecture was taken by Dr. SB Singh. Who are very good motivational & inspirational speaker. He told us a slogan that we should all keep in our mind "no tension, full attention" . By this lecture, we Came to know about the our own weakness , strength, good qualities & bad qualities, our aim, achievement & dreams.  This lecture was really enjoyed by everyone. We learnt lot of new lessons  from this lecture. Then, Dr. Pushpinder Singh told us about his experiences in life and lessons that he learnt from different problems of life . He motivated us to move forward in life and to become a good person. Then after break, our seniors did performance of bhangra to cheer up the candidates . All the candidates like this performance very much. Then Dr. sangeeta told us about our  surrounding and told how to save  environment & some other things about  causmic club.
+Thanks....!!
