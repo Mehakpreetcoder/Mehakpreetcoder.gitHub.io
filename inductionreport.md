@@ -46,3 +46,8 @@ Thanks...!!
 
 Greetings everyone!! It was the fifth day of the induction program. On this day , there are two lectures of English activities. First lecture was taken by Nisha mam & Manjot mam . They took quiz between the two sections one was CSD and another was CSC . Quiz was about vocabulary, phrase and some main questions and CSD won this quiz . Then , second lecture was taken by Pancham & Tashneet . In this , they divided students into 6 to 7 teams and this quiz was about what happening all around us like about sports , politics etc. In this , team 4 won the quiz . Like this I learnt many new things from these english activities and I enjoyed this English activities. 
 Thanks...!!!
+
+## DAY-6
+
+Greetings everyone!! It was the sixth day of the induction program. This day, there were two lectures one was of maths and another one was of UHV . In maths lecture, firstly sir told about himself then he taught us the basic of the derivatives. He taught us very deeply and clear, our minor problems and he gave us some questions to solve .The second lecture was of UHV that was taken by Nisha mam. In this lecture, we study about human values, value education and co-existence of soul & body, self exploration and some other topics learned a lot of things in this lecture to explore ourself . This lecture is very useful to us and it taught us the many moral values in right evaluation. 
+Thanks....!!
