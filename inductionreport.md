@@ -80,3 +80,8 @@ Greetings everyone!! It was the ninth day of the induction program.
 
 The first lecture was taken by Dr. SB Singh. Who are very good motivational & inspirational speaker. He told us a slogan that we should all keep in our mind "no tension, full attention" . By this lecture, we Came to know about the our own weakness , strength, good qualities & bad qualities, our aim, achievement & dreams.  This lecture was really enjoyed by everyone. We learnt lot of new lessons  from this lecture. Then, Dr. Pushpinder Singh told us about his experiences in life and lessons that he learnt from different problems of life . He motivated us to move forward in life and to become a good person. Then after break, our seniors did performance of bhangra to cheer up the candidates . All the candidates like this performance very much. Then Dr. sangeeta told us about our  surrounding and told how to save  environment & some other things about  causmic club.
 Thanks....!!
+
+## DAY-10
+
+Greetings everyone!! It was the tenth day of the induction program. There were two lectures and both were of universal human values ( UHV ) . First lecture was taken by RK sir and second lecture was taken by Manjot mam . In both lectures, we learnt those topics that we had already done but in both lectures we learnt new things and learn the topics more deeply and more simply. Both lectures was about human values, value education, self exploration, co-existence of body&soul , imagination, happiness , prosperity, harmony in family, aspects in relationship, feelings in relationship and some other topics . Both professor taught us very smoothly and with simple way by which students learn easily.
+Thanks....!!
