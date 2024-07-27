@@ -12,3 +12,4 @@ My name is mehakpreet Kaur. Recently, I have completed my +2 class in non medica
 
 [view my report](inductionreport.md)
 
+[click here to check my Excel certificate](excelcetificate.md)
