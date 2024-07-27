@@ -40,3 +40,9 @@ Greetings everyone!! It was the fourth day of the induction program.
 
 Firstly, Dr. Randhir Singh sir told us some instructions about GitHub and some other things. Then Dr. Pyare Lal sir , who is the motivational and inspirational speaker, delivered his own experiences of life and about the problems that he had faced in his life. He also told us that how to handle the problems with patience and smartly. He motivated us to move forward in life and to do right things and follow the right path . Then , Mr. Sony Goyal sir took our session of 1 2 ka 4 . He entertain us and taught us many important things in very simple way . He told the formula of life i.e. Learn , Inquire  , Future and Explore and he told us few stories of his own life and motivated us to be positive in life. I really attended this lecture with very interest . He really motivated us with good manner and with good stories. Then after break , Mr. Pancham sir told us about the difference between real and fake smile and to read body language. That what is the manner , what is behaviour, good manner , positive and negative thoughts and many more . His lecture was very helpful to us and we learnt many new things from this lecture.
 Thanks...!!
+
+
+## DAY-5
+
+Greetings everyone!! It was the fifth day of the induction program. On this day , there are two lectures of English activities. First lecture was taken by Nisha mam & Manjot mam . They took quiz between the two sections one was CSD and another was CSC . Quiz was about vocabulary, phrase and some main questions and CSD won this quiz . Then , second lecture was taken by Pancham & Tashneet . In this , they divided students into 6 to 7 teams and this quiz was about what happening all around us like about sports , politics etc. In this , team 4 won the quiz . Like this I learnt many new things from these english activities and I enjoyed this English activities. 
+Thanks...!!!
