@@ -102,3 +102,15 @@ Thanks..!!
 
 Greetings everyone!! It was the twelfth day of the induction program. There were two lectures and maths test on this day. First lecture was of maths, mam taught us about integration & some formulas of integration. She gave us different sums of different methods to solve. We solved the sums and mam checked our notebooks. Then our second lecture was of basic of chemistry, in which mam firstly told us about the curriculum of chemistry. Then , she taught some important topics that are interlinked by the engineering. She revised us some previous important topics. After break, our maths test took by the mam and we did that test with honesty .
 Thanks...!!
+
+## DAY -13 
+
+Greetings everyone!! It was the thirteenth & also the last day of the induction program . 
+
+| Sr. No. | Guest name |
+| -------- | ------- | 
+| 1. | Dr. Kanwaldeep Kaur Bhatt |
+| 2. | Dr. Sehajpal Singh | 
+
+First guest of this day was , Dr. Kanwaldeep Kaur Bhatt who is the meditation counceller and homeopathic practitioner. She has 15+ years experience in homeopathic practitioner. She told us about that how to heal our health by meditation, what are the benefits of meditation and how we gain cosmic energy by meditation. She told us that how to meditate. Then, we also meditated for about 10-15 min. After meditation, we felt very good and I decided to meditate daily from 15-20 min . By this , we enjoyed this session. Then , our Principal sir Dr. Sehajpal Singh arrived at the auditorium. He again welcomed us to the college and thanked us to maintain discipline in the college. Then, some cultural activities were happened . In which , some first year students took part in singing and dancing. All the performance were really  appreciable and we enjoyed this performances . Then after that sir HOD of IT department invited our senior who did  mimicry which we really enjoyed a lot and he motivated us to come on stage and to do performance in future . This is how, our last day of induction program ended .
+Thanks...!!
