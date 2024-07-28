@@ -86,6 +86,18 @@ Thanks....!!
 Greetings everyone!! It was the tenth day of the induction program. There were two lectures and both were of universal human values ( UHV ) . First lecture was taken by RK sir and second lecture was taken by Manjot mam . In both lectures, we learnt those topics that we had already done but in both lectures we learnt new things and learn the topics more deeply and more simply. Both lectures was about human values, value education, self exploration, co-existence of body&soul , imagination, happiness , prosperity, harmony in family, aspects in relationship, feelings in relationship and some other topics . Both professor taught us very smoothly and with simple way by which students learn easily.
 Thanks....!!
 
+## DAY-11
+
+Greetings everyone!! It was the eleventh day of the induction program. 
+
+| Sr. No. | Guest name |
+| --------- | --------- |
+| 1. | IOC Mr. Gauravdeep Singh | 
+| 2. | Co-ordinator CML Er. Lakhveer Singh |
+
+The first speaker of the day was IOC Mr. Gauravdeep Singh who is very good specker. He told us her own life story that how he fought with the problems that he faced in his life. He told us to do that things which gave us permanent happiness. He motivated us in very simple way. I enjoyed his session . Then, Co-ordinator CML Er. Lakhveer Singh  told us about the online platform in which we can join any course on NPTEL and attend online classes for free . Then, we also take exam of that course and receive certificate. And he also helped us to join the course and to do registration. Then after break, our seniors who are the members of causmic club, Introduced us to the different events and duties in the causmic club and told us the importance of joining causmic club.
+Thanks..!!
+
 ## DAY-12
 
 Greetings everyone!! It was the twelfth day of the induction program. There were two lectures and maths test on this day. First lecture was of maths, mam taught us about integration & some formulas of integration. She gave us different sums of different methods to solve. We solved the sums and mam checked our notebooks. Then our second lecture was of basic of chemistry, in which mam firstly told us about the curriculum of chemistry. Then , she taught some important topics that are interlinked by the engineering. She revised us some previous important topics. After break, our maths test took by the mam and we did that test with honesty .
